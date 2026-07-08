@@ -1,5 +1,5 @@
-## Hi there 👋
-
+## HELLU PPL!!!
+***SPEAK NO LIE. SAYING THE TRUTH--^^***
 <!--
 **OlgaSinxer/OlgaSinxer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -14,3 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+<img width="847" height="1200" alt="HDOctOsWoAASjnf" src="https://github.com/user-attachments/assets/f612a0ab-3b22-4a88-afe5-8823b0b5b7a3" />
