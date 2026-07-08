@@ -15,3 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 <img width="847" height="1200" alt="HDOctOsWoAASjnf" src="https://github.com/user-attachments/assets/f612a0ab-3b22-4a88-afe5-8823b0b5b7a3" />
+
+                                                    I LOB U :D!!!
