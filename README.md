@@ -1,5 +1,5 @@
 ## HELLU PPL!!!
-***SPEAK NO LIE. SAYING THE TRUTH--^^***
+***SPEAK NO LIE. SAYING THE TRUTH --^^***
 <!--
 **OlgaSinxer/OlgaSinxer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
