@@ -22,7 +22,8 @@ Here are some ideas to get you started:
                                                                 ✮✮✮✮
 ---------------------------------------------------------------------------------------------------------------------------------
 
-<img width="1266" height="500" alt="image" src="https://github.com/user-attachments/assets/c44b7721-2c91-464d-8432-585bd20a0cdc" />
+<img width="1306" height="1109" alt="image" src="https://github.com/user-attachments/assets/45f95d11-f0f2-4f30-bddc-f3505b531a39" />
+
 
                                                                 ✶✶✶✶
                                             I'm lonely hehe...Don't worry much abt me...<:)
