@@ -18,15 +18,16 @@ Here are some ideas to get you started:
 
 <img width="1266" height="300" alt="image" src="https://github.com/user-attachments/assets/15d9cd3e-d578-4f3f-b449-e2c9c3f2bdfa" />
 
-                                                FEEL FREE TO INT WITH ME ALWAYS!!! ^O^ 
-                                                              ✮✮✮✮
+                                                 FEEL FREE TO INT WITH ME ALWAYS!!! ^O^ 
+                                                                ✮✮✮✮
 ---------------------------------------------------------------------------------------------------------------------------------
 
 <img width="1266" height="500" alt="image" src="https://github.com/user-attachments/assets/c44b7721-2c91-464d-8432-585bd20a0cdc" />
 
-                                                               ✶✶✶✶
-                                           I'm lonely hehe...Don't worry much abt me...<:)
-                                                  You can be friend with me...Ig..
+                                                                ✶✶✶✶
+                                            I'm lonely hehe...Don't worry much abt me...<:)
+                                                   You can be friend with me...Ig..
+                                                                ...
 <img width="1066" height="400" alt="image" src="https://github.com/user-attachments/assets/6fae714a-6f26-4dbb-9cb2-8d5ff4f819dc" />
 
 ---------------------------------------------------------------------------------------------------------------------------------
