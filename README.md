@@ -16,8 +16,8 @@ Here are some ideas to get you started:
 -->
   <img width="250" height="102" alt="image" src="https://github.com/user-attachments/assets/875d5d02-78e0-49e5-874a-e8c2d6148b07" />
 
+<img width="2048" height="849" alt="image" src="https://github.com/user-attachments/assets/69f5e63f-3aa3-4b1b-a986-2ae3729a20fd" />
 
-<img width="1266" height="300" alt="image" src="https://github.com/user-attachments/assets/15d9cd3e-d578-4f3f-b449-e2c9c3f2bdfa" />
 
                                                  FEEL FREE TO INT WITH ME ALWAYS!!! ^O^ 
                                                                 ✮✮✮✮
@@ -35,7 +35,9 @@ Here are some ideas to get you started:
                                                     I could get through myself...
                                                                 ...
                                         Pls help me...I can't bear with this heavy loneliness..
-<img width="1066" height="400" alt="image" src="https://github.com/user-attachments/assets/6fae714a-6f26-4dbb-9cb2-8d5ff4f819dc" />
+<img width="1170" height="175" alt="image" src="https://github.com/user-attachments/assets/e6dc3ef7-70c9-4182-9df8-b9803a9a7bf9" />
 
 ---------------------------------------------------------------------------------------------------------------------------------
-<img width="1266" height="300" alt="image" src="https://github.com/user-attachments/assets/eb470bf6-1bb7-4da5-ace5-3f0fa6099281" />
+
+<img width="2048" height="1075" alt="image" src="https://github.com/user-attachments/assets/ac723fb1-6111-4ba9-b5be-016bb6705fd6" />
+                                               ARE YOU HAVING FUN YET????!!!1111!!!!
