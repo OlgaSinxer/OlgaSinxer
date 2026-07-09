@@ -1,5 +1,5 @@
-## HELLU PPL!!!
-***SPEAK NO LIE. SAYING THE TRUTH --^^***
+## LET ME DIE IN PEACE. -- ☆
+***WHAT ELSE DO YOU WANT FROM ME..?***
 <!--
 **OlgaSinxer/OlgaSinxer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -14,7 +14,17 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-<img width="847" height="1200" alt="HDOctOsWoAASjnf" src="https://github.com/user-attachments/assets/f612a0ab-3b22-4a88-afe5-8823b0b5b7a3" />
+<img width="1266" height="300" alt="image" src="https://github.com/user-attachments/assets/15d9cd3e-d578-4f3f-b449-e2c9c3f2bdfa" />
 
-                                                           I LOB U :D!!!
-<img width="1010" height="660" alt="GcT14bpa8AAwvV2" src="https://github.com/user-attachments/assets/711a9b85-f45c-42a3-b855-3d56b5345e3e" />
+                                               FEEL FREE TO INT WITH ME ALWAYS!!! ^O^ 
+
+                                             
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/da799961-52ad-4fe4-918f-d0b4ea04c2cc" /> 
+
+<img width="1266" height="500" alt="image" src="https://github.com/user-attachments/assets/c44b7721-2c91-464d-8432-585bd20a0cdc" />
+            
+
+<img width="1066" height="400" alt="image" src="https://github.com/user-attachments/assets/6fae714a-6f26-4dbb-9cb2-8d5ff4f819dc" />
+
+
+<img width="1266" height="300" alt="image" src="https://github.com/user-attachments/assets/eb470bf6-1bb7-4da5-ace5-3f0fa6099281" />
