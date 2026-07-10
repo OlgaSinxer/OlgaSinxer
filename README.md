@@ -1,5 +1,5 @@
-## LET ME DIE IN PEACE. -- ☆
-***WHAT ELSE DO YOU WANT FROM ME..?***
+## >:PP!!. -- ☆
+***OOPS I'M STILL RECORDING o_O-***
 <!--
 **OlgaSinxer/OlgaSinxer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
