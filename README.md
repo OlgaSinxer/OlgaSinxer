@@ -13,8 +13,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-  <img width="250" height="102" alt="image" src="https://github.com/user-attachments/assets/875d5d02-78e0-49e5-874a-e8c2d6148b07" />
-
+ 
 <img width="2048" height="849" alt="image" src="https://github.com/user-attachments/assets/69f5e63f-3aa3-4b1b-a986-2ae3729a20fd" />
 
 
