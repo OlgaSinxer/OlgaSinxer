@@ -1,4 +1,4 @@
-## ( X_0 !)
+
 <!--
 **OlgaSinxer/OlgaSinxer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -25,18 +25,21 @@ Here are some ideas to get you started:
 
 
                                                                 ✶✶✶✶
-                                            I'm lonely hehe...Don't worry much abt me...<:)
-                                                   You can be friend with me...Ig..
-                                                                ...
-                                            I'm..depressed..*sighh* It's hard to forget it..
-                                          But I don't need anyone else...I don't need them...
-                                                    I could get through myself...
-                                                                ...
-                                        Pls help me...I can't bear with this heavy loneliness..
+                                                    SUM ABT ME IF YU WANNA KNOW!
+                                                        AroAce and Demigirl!!
+                                                       I luv hares and cats!!
+                                             Very upbeat towards ppl even in a bad mood!!
+                                     Yu guys can go sit with me! Bcuz I rarely move to other place!!
+                                       And Feel free to ask me any question, vent and confession!!
+                                           If yu need sum comforts, yu can go to me n talk!
+                                       I might late resp bcuz yea I'm rlly busy or watchin yt .!
+                                                                (X_^)
+                                         Js tell me to stawp if I'm bother yu hehehe! Idm tho!
+                                                       HAVE FUNNN DAY/NIGHT!!!
 <img width="1170" height="175" alt="image" src="https://github.com/user-attachments/assets/e6dc3ef7-70c9-4182-9df8-b9803a9a7bf9" />
 
 ---------------------------------------------------------------------------------------------------------------------------------
 
 <img width="2048" height="1075" alt="image" src="https://github.com/user-attachments/assets/ac723fb1-6111-4ba9-b5be-016bb6705fd6" />
 
-                                               ARE YOU HAVING FUN YET????!!!1111!!!!
+                                                ARE YOU HAVING FUN YET????!!!1111!!!!
