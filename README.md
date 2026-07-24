@@ -19,11 +19,8 @@ Here are some ideas to get you started:
 
                                                  FEEL FREE TO INT WITH ME ALWAYS!!! ^O^ 
                                                                 ✮✮✮✮
----------------------------------------------------------------------------------------------------------------------------------
 
-<img width="1306" height="1109" alt="image" src="https://github.com/user-attachments/assets/45f95d11-f0f2-4f30-bddc-f3505b531a39" />
-
-
+----------------------------------------------------------------------------------------------------------------------------------
                                                                 ✶✶✶✶
                                                     SUM ABT ME IF YU WANNA KNOW!
                                                         AroAce and Demigirl!!
