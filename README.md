@@ -30,6 +30,7 @@ Here are some ideas to get you started:
                                         And Feel free to ask me any question, vent and confession!!
                                             If yu need sum comforts, yu can go to me n talk!
                                         I might late resp bcuz yea I'm rlly busy or watchin yt .!
+                                         I WILL BE EXTRA CAREFUL TO INT IF YU SAY "IWEC"!!! ;DD
                                                                  (X_^)
                                           Js tell me to stawp if I'm bother yu hehehe! Idm tho!
                                                         HAVE FUNNN DAY/NIGHT!!!
