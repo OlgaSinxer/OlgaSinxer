@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 
                                                  FEEL FREE TO INT WITH ME ALWAYS!!! ^O^ 
                                                   BE CAREFUL WHEN YU BMF WITH ME..PLS
-                                     DOESN'T ONLINE MUCH, BARELY GREETS/INT ME = UNFRIEND (SO SRRY D:)
+                                    DOESN'T ONLINE MUCH, BARELY GREETS/INT ME = UNFRIEND (SO SRRY D:)
                                                                 ✮✮✮✮
 
 ----------------------------------------------------------------------------------------------------------------------------------
