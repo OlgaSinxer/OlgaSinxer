@@ -42,4 +42,9 @@ Here are some ideas to get you started:
 
 <img width="2048" height="1075" alt="image" src="https://github.com/user-attachments/assets/ac723fb1-6111-4ba9-b5be-016bb6705fd6" />
 
-                                                 ARE YOU HAVING FUN YET????!!!1111!!!!
+                                                 ARE YOU HAVING FUN YET????!!!1111!!!! 
+  <img width="1112" height="544" alt="Screenshot 2026-06-26 180703" src="https://github.com/user-attachments/assets/d9165e32-cf8f-448d-b190-83240125c8e8" />
+  
+                                                   I.CAN.SEE.YOU.BEHIND.THE.SCREEN.
+                                                  OK.GREETINGS.("BYSTANDERS").("!!").
+
