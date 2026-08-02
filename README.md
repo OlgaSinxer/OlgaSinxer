@@ -25,6 +25,10 @@ Here are some ideas to get you started:
  WHEN I'M IN A BAD MOOD, YU CAN STILL INT BUT PLS DONT MAKE ME UNCOMFORTABLE
 
  BE CAREFUL WHEN YU BMF WITH ME PLS..? <:( 
+ 
+
+ <img width="600" height="20" alt="tumblr_b5479027dc5a35e79c073eaaca780b49_201d9b23_640" src="https://github.com/user-attachments/assets/7f85292c-ac62-4b3d-944f-157e025b63b1" />
+
 
  <img width="540" height="540" alt="tumblr_0408f4bcf79af35bdc9f4d0da07350cf_42f7f8e2_540" src="https://github.com/user-attachments/assets/2b12e18d-318a-4e35-80ff-59cd072cc02d" />
 
