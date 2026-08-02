@@ -20,7 +20,7 @@ Here are some ideas to get you started:
 　[Straw](https://olgasinxer.straw.page) 
 <img width="1280" height="509" alt="tumblr_ea3e1d400370f8e23e39345ce3534dd6_a9bc0feb_1280 gif" src="https://github.com/user-attachments/assets/4f8d4da5-4535-49da-b153-f0fc58e1969d" />
 
- FEEL FREE TO INT WITH ME ALWAYS!! ;D
+ <span style="color: #655025">FEEL FREE TO INT WITH ME ALWAYS!! ;D</span>
  
  WHEN I'M IN A BAD MOOD, YU CAN STILL INT BUT PLS DONT MAKE ME UNCOMFORTABLE
 
