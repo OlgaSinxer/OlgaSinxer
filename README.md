@@ -13,38 +13,20 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+<div align="center">
  
-<img width="2048" height="849" alt="image" src="https://github.com/user-attachments/assets/69f5e63f-3aa3-4b1b-a986-2ae3729a20fd" />
+   ![Github Views](https://views.igorkowalczyk.dev/api/badge/OlgaSinxer?label=Caution!+>:P&labelColor=201607&color=655025)
+   
+　[Straw](https://olgasinxer.straw.page) 
+<img width="1280" height="509" alt="tumblr_ea3e1d400370f8e23e39345ce3534dd6_a9bc0feb_1280 gif" src="https://github.com/user-attachments/assets/4f8d4da5-4535-49da-b153-f0fc58e1969d" />
 
+ FEEL FREE TO INT WITH ME ALWAYS!! ;D
+ 
+ WHEN I'M IN A BAD MOOD, YU CAN STILL INT BUT PLS DONT MAKE ME COMFORTABLE
 
-                                                 FEEL FREE TO INT WITH ME ALWAYS!!! ^O^ 
-                                                  BE CAREFUL WHEN YU BMF WITH ME..PLS
-                                    DOESN'T ONLINE MUCH, BARELY GREETS/INT ME = UNFRIEND (SO SRRY D:)
-                                                                ✮✮✮✮
+ BE CAREFUL WHEN YU BMF WITH ME PLS..? <:( 
+ 
+ 
+ 
 
-----------------------------------------------------------------------------------------------------------------------------------
-                                                                 ✶✶✶✶
-                                                     SUM ABT ME IF YU WANNA KNOW!
-                                                         AroAce and Demigirl!!
-                                                        I luv hares and cats!!
-                                              Very upbeat towards ppl even in a bad mood!!
-                                      Yu guys can go sit with me! Bcuz I rarely move to other place!!
-                                        And Feel free to ask me any question, vent and confession!!
-                                            If yu need sum comforts, yu can go to me n talk!
-                                        I might late resp bcuz yea I'm rlly busy or watchin yt .!
-                                         I WILL BE EXTRA CAREFUL TO INT IF YU SAY "IWEC"!!! ;DD
-                                                                 (X_^)
-                                          Js tell me to stawp if I'm bother yu hehehe! Idm tho!
-                                                        HAVE FUNNN DAY/NIGHT!!!
-<img width="1170" height="175" alt="image" src="https://github.com/user-attachments/assets/e6dc3ef7-70c9-4182-9df8-b9803a9a7bf9" />
-
----------------------------------------------------------------------------------------------------------------------------------
-
-<img width="2048" height="1075" alt="image" src="https://github.com/user-attachments/assets/ac723fb1-6111-4ba9-b5be-016bb6705fd6" />
-
-                                                 ARE YOU HAVING FUN YET????!!!1111!!!! 
-  <img width="1112" height="544" alt="Screenshot 2026-06-26 180703" src="https://github.com/user-attachments/assets/d9165e32-cf8f-448d-b190-83240125c8e8" />
-  
-                                                   I.CAN.SEE.YOU.BEHIND.THE.SCREEN.
-                                                  OK.GREETINGS.("BYSTANDERS").("!!").
-
+                                               
