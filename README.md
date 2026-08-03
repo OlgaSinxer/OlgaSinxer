@@ -1,3 +1,4 @@
+<img width="1647" height="384" alt="tumblr_e3f7195ddca3934eb0996c258240b9fc_fed58d6a_2048" src="https://github.com/user-attachments/assets/22619587-d6cb-4a07-ae57-b1b89a056c02" />
 
 <!--
 **OlgaSinxer/OlgaSinxer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -34,5 +35,6 @@ Here are some ideas to get you started:
 
  Do you want to keep going maybe?.
  
+<img width="20" height="20" alt="tumblr_dd487cb23ec680a552562048a3273cab_9c656898_75" src="https://github.com/user-attachments/assets/0d894c9c-7c50-4908-ac02-deabf836730e" ><img width="1647" height="384" alt="tumblr_d0d467f44e89ee3dba3067720138f7d4_49d0eff6_2048" src="https://github.com/user-attachments/assets/c95f9f93-2814-4e0c-87cd-2e071591da0c" />
 
                                                
