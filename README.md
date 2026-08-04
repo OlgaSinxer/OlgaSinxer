@@ -34,7 +34,16 @@ Here are some ideas to get you started:
  <img width="540" height="540" alt="tumblr_0408f4bcf79af35bdc9f4d0da07350cf_42f7f8e2_540" src="https://github.com/user-attachments/assets/2b12e18d-318a-4e35-80ff-59cd072cc02d" />
 
  Do you want to keep going maybe?.
+<img width="20" height="20" alt="tumblr_dd487cb23ec680a552562048a3273cab_9c656898_75" src="https://github.com/user-attachments/assets/0d894c9c-7c50-4908-ac02-deabf836730e" >
  
-<img width="20" height="20" alt="tumblr_dd487cb23ec680a552562048a3273cab_9c656898_75" src="https://github.com/user-attachments/assets/0d894c9c-7c50-4908-ac02-deabf836730e" ><img width="1647" height="384" alt="tumblr_d0d467f44e89ee3dba3067720138f7d4_49d0eff6_2048" src="https://github.com/user-attachments/assets/c95f9f93-2814-4e0c-87cd-2e071591da0c" />
+
+<img width="295" height="54" alt="Screenshot 2026-08-04 171602" src="https://github.com/user-attachments/assets/346c9274-1912-46a8-8306-beb9d81651bf" />
+
+HELP THIS IS ME BTW. OK TYY AGAIN @pt-characters!
+
+
+<img width="1647" height="384" alt="tumblr_d0d467f44e89ee3dba3067720138f7d4_49d0eff6_2048" src="https://github.com/user-attachments/assets/c95f9f93-2814-4e0c-87cd-2e071591da0c" />
+
+
 
                                                
