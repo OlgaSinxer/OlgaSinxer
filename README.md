@@ -26,7 +26,10 @@ Here are some ideas to get you started:
  WHEN I'M IN A BAD MOOD, YU CAN STILL INT BUT PLS DONT MAKE ME UNCOMFORTABLE
 
  BE CAREFUL WHEN YU BMF WITH ME PLS..? <:( 
- 
+
+ JS TELL ME IF I'M BOTHERIN YU HAHAHAHEHHEHE..!!
+
+ UPBEAT TOWARD PPL, PLEZ BARE WITH ME.
 
  <img width="600" height="20" alt="tumblr_b5479027dc5a35e79c073eaaca780b49_201d9b23_640" src="https://github.com/user-attachments/assets/7f85292c-ac62-4b3d-944f-157e025b63b1" />
 
