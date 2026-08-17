@@ -42,7 +42,6 @@ Here are some ideas to get you started:
 
 <img width="1647" height="384" alt="tumblr_d0d467f44e89ee3dba3067720138f7d4_49d0eff6_2048" src="https://github.com/user-attachments/assets/c95f9f93-2814-4e0c-87cd-2e071591da0c" />
 
+<img width="845" height="823" alt="Screenshot 2026-08-17 123809" src="https://github.com/user-attachments/assets/7968c7af-73b0-4688-b3ca-b2c4416fd222" />
 
-<img width="619" height="603" alt="Screenshot 2026-08-17 122738" src="https://github.com/user-attachments/assets/a0c215a8-36e6-44b2-aa16-4fb93f71c77d" />
-
-Hhhii friendsss !!
+Hhhii friendsss !! Ami Ssso Ccute???!! :)))
