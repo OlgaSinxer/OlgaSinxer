@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 <div align="center">
  
-   ![Github Views](https://views.igorkowalczyk.dev/api/badge/OlgaSinxer?label=Caution!+>:P&labelColor=201607&color=655025)
+   ![Github Views](https://views.igorkowalczyk.dev/api/badge/OlgaSinxer?label=Bystanders!+:DD&labelColor=201607&color=655025)
    
 　[Straw](https://olgasinxer.straw.page)     [MainStraw](https://carrthecat.straw.page)
 <img width="1280" height="509" alt="tumblr_ea3e1d400370f8e23e39345ce3534dd6_a9bc0feb_1280 gif" src="https://github.com/user-attachments/assets/4f8d4da5-4535-49da-b153-f0fc58e1969d" />
