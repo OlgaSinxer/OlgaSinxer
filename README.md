@@ -46,3 +46,9 @@ Here are some ideas to get you started:
 
 
 Hhhii friendsss !! Ami Ssso Ccute???!! :)))
+
+
+<img width="933" height="875" alt="Screenshot 2026-08-22 161016" src="https://github.com/user-attachments/assets/889f921c-abb3-43d5-9a4f-cb43427e329d" />
+
+Free to use my arts also!! :D
+
