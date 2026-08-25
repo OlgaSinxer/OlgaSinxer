@@ -43,3 +43,12 @@ Here are some ideas to get you started:
 <img width="1647" height="384" alt="tumblr_d0d467f44e89ee3dba3067720138f7d4_49d0eff6_2048" src="https://github.com/user-attachments/assets/c95f9f93-2814-4e0c-87cd-2e071591da0c" />
 
 
+
+
+<img width="421" height="39" alt="Screenshot 2026-08-25 093652" src="https://github.com/user-attachments/assets/a6713cbd-6bcc-4c5e-939b-444f7d2c80e2" />
+
+<img width="286" height="30" alt="Screenshot 2026-08-25 093743" src="https://github.com/user-attachments/assets/e474f1b4-1174-4e19-928b-0adcebbbbcd0" />
+
+
+
+
