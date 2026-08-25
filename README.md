@@ -36,6 +36,7 @@ Here are some ideas to get you started:
 
  <img width="540" height="540" alt="tumblr_0408f4bcf79af35bdc9f4d0da07350cf_42f7f8e2_540" src="https://github.com/user-attachments/assets/2b12e18d-318a-4e35-80ff-59cd072cc02d" />
 
+
  Do you want to keep going maybe?.
 
  <img width="20" height="20" alt="tumblr_dd487cb23ec680a552562048a3273cab_9c656898_75" src="https://github.com/user-attachments/assets/0d894c9c-7c50-4908-ac02-deabf836730e" >
@@ -48,6 +49,9 @@ Here are some ideas to get you started:
 <img width="421" height="39" alt="Screenshot 2026-08-25 093652" src="https://github.com/user-attachments/assets/a6713cbd-6bcc-4c5e-939b-444f7d2c80e2" />
 
 <img width="286" height="30" alt="Screenshot 2026-08-25 093743" src="https://github.com/user-attachments/assets/e474f1b4-1174-4e19-928b-0adcebbbbcd0" />
+
+<img width="397" height="34" alt="Screenshot 2026-08-25 093955" src="https://github.com/user-attachments/assets/8d70cd08-e39a-4d2a-ba3e-2fc38efafe5f" />
+
 
 
 
