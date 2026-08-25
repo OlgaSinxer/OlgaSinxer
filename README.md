@@ -50,7 +50,7 @@ Here are some ideas to get you started:
 
 <img width="286" height="30" alt="Screenshot 2026-08-25 093743" src="https://github.com/user-attachments/assets/e474f1b4-1174-4e19-928b-0adcebbbbcd0" />
 
-<img width="397" height="34" alt="Screenshot 2026-08-25 093955" src="https://github.com/user-attachments/assets/8d70cd08-e39a-4d2a-ba3e-2fc38efafe5f" />
+<img width="397" height="34" alt="Screenshot 2026-08-25 093955" src="https://github.com/user-attachments/assets/8d70cd08-e39a-4d2a-ba3e-2fc38efafe5f" /> #1 Natural Intelligence shipper!
 
 <img width="295" height="54" alt="Screenshot 2026-08-04 171602" src="https://github.com/user-attachments/assets/b5ebeade-0555-4ce6-8902-87305ad293b7" />
 
