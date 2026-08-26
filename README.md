@@ -54,6 +54,8 @@ Here are some ideas to get you started:
 
 <img width="295" height="54" alt="Screenshot 2026-08-04 171602" src="https://github.com/user-attachments/assets/b5ebeade-0555-4ce6-8902-87305ad293b7" />
 
+<img width="403" height="37" alt="Screenshot 2026-08-26 174417" src="https://github.com/user-attachments/assets/c5e83fac-8e9e-4a82-9c37-939c0389f24d" />
+
 
 
 
