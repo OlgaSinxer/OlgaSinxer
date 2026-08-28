@@ -14,6 +14,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 <div align="center">
+<img width="518" height="106" alt="tumblr_9c6da32fd4316c7f9dd99addf6510067_99ea704a_540" src="https://github.com/user-attachments/assets/8f615748-a9bb-4a39-9495-d9d02f39f2ab" />
+
  
    ![Github Views](https://views.igorkowalczyk.dev/api/badge/OlgaSinxer?label=Bystanders!+:DD&labelColor=407f6b&color=7e7d4a)
    
