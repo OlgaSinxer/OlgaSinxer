@@ -28,7 +28,7 @@ Here are some ideas to get you started:
  $\text{\color{#ABCDC0}Sign ata if yu want to bmf with me!.}$
 
 
-<img width="2048" height="2048" alt="tumblr_840038b17c2657c58c21496a2a696eee_4c17934f_2048" src="https://github.com/user-attachments/assets/62d822f3-f56d-474d-962d-b58cdbf8871b" />
+<img width="260" height="260" alt="azuv4v" src="https://github.com/user-attachments/assets/49c23203-c81d-4c03-8661-085d3e80c812" />
 
 
 $\text{\color{#5b9c87}I'm in a funny/crazy mood all the times so umm...hehe don't mind me bcuz yea. Sweats O.O}$
