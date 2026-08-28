@@ -33,10 +33,10 @@ Here are some ideas to get you started:
  UPBEAT TOWARD PPL, PLEZ BARE WITH ME.
 
 
-<img width="400" height="400" alt="Untitled39_20260113183909" src="https://github.com/user-attachments/assets/c6aaf91c-5896-4193-8321-4d25563ccf87" />
+<img width="2048" height="2048" alt="tumblr_840038b17c2657c58c21496a2a696eee_4c17934f_2048" src="https://github.com/user-attachments/assets/62d822f3-f56d-474d-962d-b58cdbf8871b" />
 
 
- Icons made by my mf from discord!
+I'm in a funny/crazy mood all the times so umm...hehe dont mind me
 
 
 
