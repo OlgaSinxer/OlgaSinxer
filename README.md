@@ -1,4 +1,3 @@
-<img width="1647" height="384" alt="tumblr_e3f7195ddca3934eb0996c258240b9fc_fed58d6a_2048" src="https://github.com/user-attachments/assets/22619587-d6cb-4a07-ae57-b1b89a056c02" />
 
 <!--
 **OlgaSinxer/OlgaSinxer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -19,7 +18,7 @@ Here are some ideas to get you started:
    ![Github Views](https://views.igorkowalczyk.dev/api/badge/OlgaSinxer?label=Bystanders!+:DD&labelColor=201607&color=655025)
    
 [Ata](https://evilneedles.atabook.org)　[Straw](https://olgasinxer.straw.page)     [MainStraw](https://carrthecat.straw.page)
-<img width="1280" height="509" alt="tumblr_ea3e1d400370f8e23e39345ce3534dd6_a9bc0feb_1280 gif" src="https://github.com/user-attachments/assets/4f8d4da5-4535-49da-b153-f0fc58e1969d" />
+<img width="1280" height="503" alt="Untitled38_20260113183633" src="https://github.com/user-attachments/assets/2e972b08-85dd-4d82-a0f3-741e4146c1cb" />
 
  FEEL FREE TO INT WITH ME ALWAYS!! ;D
  
@@ -31,18 +30,11 @@ Here are some ideas to get you started:
 
  UPBEAT TOWARD PPL, PLEZ BARE WITH ME.
 
- <img width="600" height="20" alt="tumblr_b5479027dc5a35e79c073eaaca780b49_201d9b23_640" src="https://github.com/user-attachments/assets/7f85292c-ac62-4b3d-944f-157e025b63b1" />
+
+<img width="400" height="400" alt="Untitled39_20260113183909" src="https://github.com/user-attachments/assets/c6aaf91c-5896-4193-8321-4d25563ccf87" />
 
 
- <img width="540" height="540" alt="tumblr_0408f4bcf79af35bdc9f4d0da07350cf_42f7f8e2_540" src="https://github.com/user-attachments/assets/2b12e18d-318a-4e35-80ff-59cd072cc02d" />
-
-
- Do you want to keep going maybe?.
-
- <img width="20" height="20" alt="tumblr_dd487cb23ec680a552562048a3273cab_9c656898_75" src="https://github.com/user-attachments/assets/0d894c9c-7c50-4908-ac02-deabf836730e" >
-
-<img width="1647" height="384" alt="tumblr_d0d467f44e89ee3dba3067720138f7d4_49d0eff6_2048" src="https://github.com/user-attachments/assets/c95f9f93-2814-4e0c-87cd-2e071591da0c" />
-
+ wip. Icons made by my mf from discord!
 
 
 
