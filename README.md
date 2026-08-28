@@ -30,6 +30,7 @@ Here are some ideas to get you started:
 
 <img width="260" height="260" alt="azuv4v" src="https://github.com/user-attachments/assets/49c23203-c81d-4c03-8661-085d3e80c812" />
 
+$\text{\color{#F5F8D2}Animated by me! :3}$
 
 $\text{\color{#5b9c87}I'm in a funny/crazy mood all the times so umm...hehe don't mind me bcuz yea. Sweats O.O}$
 
