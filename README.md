@@ -14,6 +14,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 <div align="center">
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=900&size=29&duration=4000&pause=4000&color=B7D3C3&width=440&lines=%22++IT'S+LOOK+LIKE+A+MOVIE.++%22" alt="Typing SVG"></a>
  
    ![Github Views](https://views.igorkowalczyk.dev/api/badge/OlgaSinxer?label=Bystanders!+:DD&labelColor=F5F8D2&color=CBE0C8)
    
