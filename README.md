@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 -->
 <div align="center">
  
-   ![Github Views](https://views.igorkowalczyk.dev/api/badge/OlgaSinxer?label=Bystanders!+:DD&labelColor=201607&color=655025)
+   ![Github Views](https://views.igorkowalczyk.dev/api/badge/OlgaSinxer?label=Bystanders!+:DD&labelColor=407f6b&color=7e7d4a)
    
 [Ata](https://evilneedles.atabook.org)　[Straw](https://olgasinxer.straw.page)     [MainStraw](https://carrthecat.straw.page)
 <img width="1280" height="503" alt="Untitled38_20260113183633" src="https://github.com/user-attachments/assets/2e972b08-85dd-4d82-a0f3-741e4146c1cb" />
