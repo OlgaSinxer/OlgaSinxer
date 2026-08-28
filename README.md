@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=40&height=80&pause=4000&color=ABCDC0&center=true&vCenter=true&width=900&lines=It's+look+like+a+movie+:P.;We+can+play+along+:D!.;And+It'll+be+okay+:3." />
  </p>
  
-   ![Github Views](https://views.igorkowalczyk.dev/api/badge/OlgaSinxer?label=Bystanders!+:DD&labelColor=F5F8D2&color=CBE0C8)
+   ![Github Views](https://views.igorkowalczyk.dev/api/badge/OlgaSinxer?label=HELLOU+PPL!+>:DD&labelColor=F5F8D2&color=CBE0C8)
    
 [Ata](https://evilneedles.atabook.org)　[Straw](https://olgasinxer.straw.page)     [MainStraw](https://carrthecat.straw.page)
 <img width="1280" height="503" alt="Untitled38_20260113183633" src="https://github.com/user-attachments/assets/2e972b08-85dd-4d82-a0f3-741e4146c1cb" />
