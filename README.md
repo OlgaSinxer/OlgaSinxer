@@ -34,7 +34,7 @@ Here are some ideas to get you started:
 <img width="400" height="400" alt="Untitled39_20260113183909" src="https://github.com/user-attachments/assets/c6aaf91c-5896-4193-8321-4d25563ccf87" />
 
 
- wip. Icons made by my mf from discord!
+ Icons made by my mf from discord!
 
 
 
