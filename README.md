@@ -21,6 +21,7 @@ Here are some ideas to get you started:
 <img width="1280" height="503" alt="Untitled38_20260113183633" src="https://github.com/user-attachments/assets/2e972b08-85dd-4d82-a0f3-741e4146c1cb" />
 
  GO READ MY MAIN STRAW PAGE TO KNOW ME BETTER!
+ 
  Sign ata if yu want to bmf with me!.
 
 
