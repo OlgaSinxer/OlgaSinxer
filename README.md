@@ -28,7 +28,7 @@ Here are some ideas to get you started:
 <img width="2048" height="2048" alt="tumblr_840038b17c2657c58c21496a2a696eee_4c17934f_2048" src="https://github.com/user-attachments/assets/62d822f3-f56d-474d-962d-b58cdbf8871b" />
 
 
-I'm in a funny/crazy mood all the times so umm...hehe dont mind me
+I'm in a funny/crazy mood all the times so umm...hehe don't mind me bcuz yea. *Sweats*
 
 
 
