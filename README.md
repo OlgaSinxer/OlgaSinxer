@@ -20,15 +20,15 @@ Here are some ideas to get you started:
 [Ata](https://evilneedles.atabook.org)　[Straw](https://olgasinxer.straw.page)     [MainStraw](https://carrthecat.straw.page)
 <img width="1280" height="503" alt="Untitled38_20260113183633" src="https://github.com/user-attachments/assets/2e972b08-85dd-4d82-a0f3-741e4146c1cb" />
 
- GO READ MY MAIN STRAW PAGE TO KNOW ME BETTER!
+ ***GO READ MY MAIN STRAW PAGE TO KNOW ME BETTER!***
  
- Sign ata if yu want to bmf with me!.
+ **Sign ata if yu want to bmf with me!.**
 
 
 <img width="2048" height="2048" alt="tumblr_840038b17c2657c58c21496a2a696eee_4c17934f_2048" src="https://github.com/user-attachments/assets/62d822f3-f56d-474d-962d-b58cdbf8871b" />
 
 
-I'm in a funny/crazy mood all the times so umm...hehe don't mind me bcuz yea. *Sweats*
+*I'm in a funny/crazy mood all the times so umm...hehe don't mind me bcuz yea.* *Sweats* *O_O'''*
 
 
 
