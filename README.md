@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 -->
 <div align="center">
  
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=40&height=80&pause=4000&color=ABCDC0&center=true&vCenter=true&width=900&lines=It's+look+like+a+movie+:P.;We+can+play+along+:D!.;And+It'll+be+okay+:3." />
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=40&height=80&pause=1000&color=ABCDC0&center=true&vCenter=true&width=900&lines=It's+look+like+a+movie+:P.;We+can+play+along+:D!.;And+It'll+be+okay+:3." />
  </p>
  
    ![Github Views](https://views.igorkowalczyk.dev/api/badge/OlgaSinxer?label=HELLOU+PPL!+>:DD&labelColor=F5F8D2&color=CBE0C8)
