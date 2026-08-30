@@ -27,6 +27,20 @@ Here are some ideas to get you started:
  
  $\text{\color{#ABCDC0}Sign ata if yu want to bmf with me!.}$
 
+ <details>
+<summary> $\text{\color{#5b9c87} Pony Town info! :D}$ </summary><br>
+  
+ $\text{\color{#ABCDC0}Feel free to int with me..all yu wants!}$
+  
+ $\text{\color{#ABCDC0}When I'm in a bad mood, yu can still int but pls don't make me umcomfortable.}$
+
+ $\text{\color{#ABCDC0}Might be late resp or none. If I leave suddenly, I probably js have smth to do or go take a nap/sleep.}$
+
+ $\text{\color{#ABCDC0}Yu can come n cuddle me! bcuz I barely move to other spot..I usually at grass spot.}$
+
+ $\text{\color{#ABCDC0}Do NOT friend me randomly unless give me permission or talkin with me.}$
+ </details>
+
 
 <img width="260" height="260" alt="azuv4v" src="https://github.com/user-attachments/assets/49c23203-c81d-4c03-8661-085d3e80c812" />
 
