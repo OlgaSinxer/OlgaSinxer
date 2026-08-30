@@ -46,10 +46,23 @@ Here are some ideas to get you started:
 
  $\text{\color{#ABCDC0}Under 13- and over 20+ pls dni or js iwec strictly..}$
 
-  $\text{\color{#ABCDC0}I barely joke around so hehe yea don't mind me sitting in one place while yu walking n jumping in one place <:D}$
+ $\text{\color{#ABCDC0}I barely joke around so hehe yea don't mind me sitting in one place while yu walking n jumping in one place <:D}$
  </details>
 
+ <details>
+<summary> $\text{\color{#5b9c87} Bonus! >:P}$ </summary><br>
+  
+$\text{\color{#ABCDC0}Request me to draw smth or yu can js ask me to draw yu! I luv drawing XD!}$
 
+$\text{\color{#ABCDC0}I luv it when yu int with me that long!}$
+
+$\text{\color{#ABCDC0}Yu can also ask me for gift skin, I could make yu one once yer my friend! :D}$
+
+$\text{\color{#ABCDC0}Don't worry much abt me whenever I'm in a bad mood alr? <:D}$
+
+$\text{\color{#ABCDC0}I'm not gud enough at comfortin ppl, but I will try my best to do it! >:3}$
+ </details>
+  
 <img width="260" height="260" alt="azuv4v" src="https://github.com/user-attachments/assets/49c23203-c81d-4c03-8661-085d3e80c812" />
 
 $\text{\color{#F5F8D2}Animated by me! :3}$
