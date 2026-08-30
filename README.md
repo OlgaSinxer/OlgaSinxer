@@ -44,7 +44,7 @@ Here are some ideas to get you started:
 
  $\text{\color{#ABCDC0}Don't COPY my skins nor take inspo strictly (give me credits n permission so yer fine).}$
 
- $\text{\color{#ABCDC0}Under 13- and over 20+ pls dni or js iwec..}$
+ $\text{\color{#ABCDC0}Under 13- and over 20+ pls dni or js iwec..(unless friend.)}$
 
  $\text{\color{#ABCDC0}I barely joke around so hehe yea don't mind me sitting in one place while yu walking n jumping in one place <:D}$
  </details>
