@@ -41,6 +41,8 @@ Here are some ideas to get you started:
  $\text{\color{#ABCDC0}Yu can come n cuddle me! bcuz I barely move to other spot..I usually at grass spot.}$
 
  $\text{\color{#ABCDC0}Do NOT friend me randomly unless give me permission or talkin with me.}$
+
+ $\text{\color{#ABCDC0}Don't COPY my skins or take inspo strictly (give me credits n permission so yer fine).}$
  </details>
 
 
