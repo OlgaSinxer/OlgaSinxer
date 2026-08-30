@@ -31,6 +31,8 @@ Here are some ideas to get you started:
 <summary> $\text{\color{#5b9c87} Pony Town info! :D}$ </summary><br>
   
  $\text{\color{#ABCDC0}Feel free to int with me..all yu wants!}$
+
+ $\text{\color{#ABCDC0}I will block yu if yu annoyin me like too much.}$
   
  $\text{\color{#ABCDC0}When I'm in a bad mood, yu can still int but pls don't make me umcomfortable.}$
 
