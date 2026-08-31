@@ -93,6 +93,10 @@ $\text{\color{#5b9c87}I'm in a funny/crazy mood all the times so umm...hehe don'
 <img width="403" height="37" alt="Screenshot 2026-08-26 174417" src="https://github.com/user-attachments/assets/c5e83fac-8e9e-4a82-9c37-939c0389f24d" />
 </details>
 
+<details>
+<summary> $\text{\color{#5b9c87} Sum arts I draw for fun eehh..wip.}$ </summary><br>
+<img width="951" height="767" alt="Screenshot 2026-08-31 140734" src="https://github.com/user-attachments/assets/cbd5a98d-c217-4ce2-a610-73c4ef2b5e5a" />
+</details>
 
 
 
