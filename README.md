@@ -99,6 +99,9 @@ $\text{\color{#5b9c87}I'm in a funny/crazy mood all the times so umm...hehe don'
 
 <img width="1186" height="731" alt="Screenshot 2026-08-31 142057" src="https://github.com/user-attachments/assets/96782c3f-92e6-4293-9083-560bb6c949d5" />
 
+<img width="809" height="678" alt="Screenshot 2026-08-31 142608" src="https://github.com/user-attachments/assets/ce03a35c-03de-487a-833a-885d4b9c9a18" />
+
+
 </details>
 
 
