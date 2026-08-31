@@ -66,11 +66,11 @@ $\text{\color{#ABCDC0}I'm not gud enough at comfortin ppl, but I will try my bes
 <details>
 <summary> $\text{\color{#5b9c87} Sum friends I sit and talk alot!}$ </summary><br>
  
-[Nyan](@c-utesy) / [M40W](@VArtfultrust) / [Abble](Ilove-him) / [Khutas my dear](@flowerseasalt) / [Soren my first friend](@BeachChick16) / [Kiraz my second friend](@K1xraz)
+[Nyan](https://@c-utesy) / [M40W](https://@VArtfultrust) / [Abble](https://Ilove-him) / [Khutas my dear](https://@flowerseasalt) / [Soren my first friend](https://@BeachChick16) / [Kiraz my second friend](https://@K1xraz)
 
-[Andre](@andreslopper) / [Num1 yapper](@NikaMokochi) / [Sugar the arg fellow!](@BOTTLEDHOAX) / [Sixty the arg fellow!](@Deivydoestutorialz33) / [Ayumii](@Cuddling-Encouraged-heavily-Dnc) / [Yekita](@ppawncakezz) 
+[Andre](https://@andreslopper) / [Num1 yapper](https://@NikaMokochi) / [Sugar the arg fellow!](https://@BOTTLEDHOAX) / [Sixty the arg fellow!](https://@Deivydoestutorialz33) / [Ayumii](https://@Cuddling-Encouraged-heavily-Dnc) / [Yekita](https://@ppawncakezz) 
 
-[HELLU CAPO!!](@lovingl3tters) $\text{\color{#ABCDC0}<-- He's may not my friend but he cheers me up alot!! so I included him here.}$
+[HELLU CAPO!!](https://@lovingl3tters) $\text{\color{#ABCDC0}<-- He's may not my friend but he cheers me up alot!! so I included him here.}$
  </details>
   
 <img width="260" height="260" alt="azuv4v" src="https://github.com/user-attachments/assets/49c23203-c81d-4c03-8661-085d3e80c812" />
