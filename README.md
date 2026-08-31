@@ -62,6 +62,16 @@ $\text{\color{#ABCDC0}Don't worry much abt me whenever I'm in a bad mood alr? <:
 
 $\text{\color{#ABCDC0}I'm not gud enough at comfortin ppl, but I will try my best to do it! >:3}$
  </details>
+ 
+<details>
+<summary> $\text{\color{#5b9c87} Sum friends I sit and talk alot!}$ </summary><br>
+ 
+[Nyan](@c-utesy) / [M40W](@VArtfultrust) / [Abble](Ilove-him) / [Khutas my dear](@flowerseasalt) / [Soren my first friend](@BeachChick16) / [Kiraz my second friend](@K1xraz)
+
+[Andre](@andreslopper) / [Num1 yapper](@NikaMokochi) / [Sugar the arg fellow!](@BOTTLEDHOAX) / [Sixty the arg fellow!](@Deivydoestutorialz33) / [Ayumii](@Cuddling-Encouraged-heavily-Dnc) / [Yekita](@ppawncakezz) 
+
+[HELLU CAPO!!](@lovingl3tters) $\text{\color{#ABCDC0}<-- He's may not my friend but he cheers me up alot!! so I included him here.}$
+ </details>
   
 <img width="260" height="260" alt="azuv4v" src="https://github.com/user-attachments/assets/49c23203-c81d-4c03-8661-085d3e80c812" />
 
