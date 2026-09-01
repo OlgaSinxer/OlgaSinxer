@@ -94,14 +94,20 @@ $\text{\color{#5b9c87}I'm in a funny/crazy mood all the times so umm...hehe don'
 </details>
 
 <details>
-<summary> $\text{\color{#5b9c87} Sum arts I draw for fun eehh..wip.}$ </summary><br>
+<summary> $\text{\color{#5b9c87} Sum arts I draw for fun!}$ </summary><br>
 <img width="951" height="767" alt="Screenshot 2026-08-31 140734" src="https://github.com/user-attachments/assets/cbd5a98d-c217-4ce2-a610-73c4ef2b5e5a" />
 
 <img width="1186" height="731" alt="Screenshot 2026-08-31 142057" src="https://github.com/user-attachments/assets/96782c3f-92e6-4293-9083-560bb6c949d5" />
 
 <img width="809" height="678" alt="Screenshot 2026-08-31 142608" src="https://github.com/user-attachments/assets/ce03a35c-03de-487a-833a-885d4b9c9a18" />
 
+<img width="837" height="826" alt="Screenshot 2026-08-25 090424" src="https://github.com/user-attachments/assets/d9b9d602-cae0-4a6b-8206-77c8f1344449" />
 
+<img width="732" height="677" alt="Screenshot 2026-08-17 135045" src="https://github.com/user-attachments/assets/20ceffbb-c247-4d84-ba4c-3c93c6b175b7" />
+
+<img width="933" height="875" alt="Screenshot 2026-08-22 161016" src="https://github.com/user-attachments/assets/45566f45-c5b0-413e-ae10-7960135f06a9" />
+
+<img width="429" height="393" alt="Screenshot 2026-08-24 123351" src="https://github.com/user-attachments/assets/a3656589-ea1e-43ab-9999-57746b481a65" />
 </details>
 
 
