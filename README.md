@@ -68,7 +68,7 @@ $\text{\color{#ABCDC0}I'm not gud enough at comfortin ppl, but I will try my bes
  
 [*Nyan*](https://github.com/c-utesy) / [*M40W*](https://github.com/VArtfultrust) / [*Abble*](https://github.com/Ilove-him) / [Khutas my stinkiest or dearest friend](https://github.com/flowerseasalt) / [Soren my first friend](https://github.com/BeachChick16) / [Kiraz my second friend](https://github.com/K1xraz)
 
-[Andre](https://github.com/andreslopper) / [Num1 yapper](https://github.com/NikaMokochi) / [Sugar the arg fellow!](https://github.com/BOTTLEDHOAX) / [Sixty the arg fellow!](https://github.com/Deivydoestutorialz33) / [Ayumii](https://github.com/Cuddling-Encouraged-heavily-Dnc) / [Yekita](https://github.com/ppawncakezz) 
+[Andre](https://github.com/andreslopper) / [Num1 yapper](https://github.com/NikaMokochi) / [Sugar the arg fellow!](https://github.com/BOTTLEDHOAX) / [Sixty the arg fellow!](https://github.com/Deivydoestutorialz33) / [Ayumii](https://github.com/Cuddling-Encouraged-heavily-Dnc) / [Yekita](https://github.com/ppawncakezz) / [Shellyz](https://github.com/ShellzyFossilzianz)
 
 [HELLU CAPO!!](https://github.com/lovingl3tters) $\text{\color{#ABCDC0}<-- He's may not my friend but he cheers me up alot!! so I included him here.}$
  </details>
