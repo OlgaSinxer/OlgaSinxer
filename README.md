@@ -86,7 +86,9 @@ $\text{\color{#5b9c87}I'm in a funny/crazy mood all the times so umm...hehe don'
 
 <img width="286" height="30" alt="Screenshot 2026-08-25 093743" src="https://github.com/user-attachments/assets/e474f1b4-1174-4e19-928b-0adcebbbbcd0" />
 
-<img width="397" height="34" alt="Screenshot 2026-08-25 093955" src="https://github.com/user-attachments/assets/8d70cd08-e39a-4d2a-ba3e-2fc38efafe5f" /> #1 Natural Intelligence shipper!
+<img width="395" height="38" alt="Screenshot 2026-09-05 080129" src="https://github.com/user-attachments/assets/91911a07-d501-4ae5-ab93-c31472c8f976" /> <--Also khown as Num.1 Natural Intelligence shipper!
+
+<img width="296" height="35" alt="Screenshot 2026-09-05 080141" src="https://github.com/user-attachments/assets/8a3af27a-c8ea-4fbd-9da8-4883bbb48de2" />
 
 <img width="295" height="54" alt="Screenshot 2026-08-04 171602" src="https://github.com/user-attachments/assets/b5ebeade-0555-4ce6-8902-87305ad293b7" />
 
