@@ -93,6 +93,10 @@ $\text{\color{#5b9c87}I'm in a funny/crazy mood all the times so umm...hehe don'
 <img width="295" height="54" alt="Screenshot 2026-08-04 171602" src="https://github.com/user-attachments/assets/b5ebeade-0555-4ce6-8902-87305ad293b7" />
 
 <img width="403" height="37" alt="Screenshot 2026-08-26 174417" src="https://github.com/user-attachments/assets/c5e83fac-8e9e-4a82-9c37-939c0389f24d" />
+
+<img width="454" height="26" alt="Screenshot 2026-09-05 212324" src="https://github.com/user-attachments/assets/1e022968-8fbc-44b0-9a5d-751327960de0" />
+
+<img width="863" height="60" alt="Screenshot 2026-09-05 212316" src="https://github.com/user-attachments/assets/f9a94b66-62eb-43ad-ba34-8cf368f93fd2" />
 </details>
 
 <details>
