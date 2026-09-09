@@ -114,6 +114,8 @@ $\text{\color{#5b9c87}I'm in a funny/crazy mood all the times so umm...hehe don'
 <img width="1361" height="678" alt="Screenshot 2026-09-02 202658" src="https://github.com/user-attachments/assets/b1c6f6e4-7d6c-4b4b-b81a-44a4fb7bd33c" />
 </details>
 
+***THIS IS US!! AWWW I LUV YU GUYS/P X3!!! WE HAVE BEEN SOOOOOO MUCH FUNN!!!***
+<img width="567" height="325" alt="Screenshot 2026-09-09 184636" src="https://github.com/user-attachments/assets/7cc48340-138b-4a2e-913e-98c7d3ba0f10" />
 
 
 
