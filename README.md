@@ -99,6 +99,8 @@ $\text{\color{#5b9c87}I'm in a funny/crazy mood all the times so umm...hehe don'
 <img width="863" height="60" alt="Screenshot 2026-09-05 212316" src="https://github.com/user-attachments/assets/f9a94b66-62eb-43ad-ba34-8cf368f93fd2" />
 
 <img width="405" height="34" alt="Screenshot 2026-09-06 071050" src="https://github.com/user-attachments/assets/bc7f30ed-3f24-4494-8ce2-9e99ffb82251" />
+
+<img width="332" height="33" alt="Screenshot 2026-09-15 115803" src="https://github.com/user-attachments/assets/7587ed3f-e167-4ae6-8f21-74825fef0e51" />
 </details>
 
 <details>
