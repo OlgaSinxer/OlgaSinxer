@@ -105,18 +105,6 @@ $\text{\color{#5b9c87}I'm in a funny/crazy mood all the times so umm...hehe don'
 <img width="323" height="21" alt="Screenshot 2026-09-16 170608" src="https://github.com/user-attachments/assets/4098c231-684f-49e3-a761-d8ece621b2f8" />
 </details>
 
-<details>
-<summary> $\text{\color{#5b9c87} Sum arts I draw for fun!}$ </summary><br>
-<img width="951" height="767" alt="Screenshot 2026-08-31 140734" src="https://github.com/user-attachments/assets/cbd5a98d-c217-4ce2-a610-73c4ef2b5e5a" />
-
-<img width="1186" height="731" alt="Screenshot 2026-08-31 142057" src="https://github.com/user-attachments/assets/96782c3f-92e6-4293-9083-560bb6c949d5" />
-
-<img width="809" height="678" alt="Screenshot 2026-08-31 142608" src="https://github.com/user-attachments/assets/ce03a35c-03de-487a-833a-885d4b9c9a18" />
-
-<img width="1360" height="752" alt="My group" src="https://github.com/user-attachments/assets/54656038-be8a-40dd-9a9d-2ac98d8f2a75" />
-
-<img width="1361" height="678" alt="Screenshot 2026-09-02 202658" src="https://github.com/user-attachments/assets/b1c6f6e4-7d6c-4b4b-b81a-44a4fb7bd33c" />
-</details>
 
 ***THIS IS US!! AWWW I LUV YU GUYS/P X3!!! WE HAVE BEEN SOOOOOO MUCH FUNN!!!***
 <img width="567" height="325" alt="Screenshot 2026-09-09 184636" src="https://github.com/user-attachments/assets/7cc48340-138b-4a2e-913e-98c7d3ba0f10" />
