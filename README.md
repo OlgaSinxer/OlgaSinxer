@@ -103,6 +103,8 @@ $\text{\color{#5b9c87}I'm in a funny/crazy mood all the times so umm...hehe don'
 <img width="332" height="33" alt="Screenshot 2026-09-15 115803" src="https://github.com/user-attachments/assets/7587ed3f-e167-4ae6-8f21-74825fef0e51" />
 
 <img width="323" height="21" alt="Screenshot 2026-09-16 170608" src="https://github.com/user-attachments/assets/4098c231-684f-49e3-a761-d8ece621b2f8" />
+
+<img width="323" height="45" alt="Screenshot 2026-09-22 194839" src="https://github.com/user-attachments/assets/67e24ccc-8db1-4398-9324-e7716b718e94" />
 </details>
 
 
