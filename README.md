@@ -73,7 +73,7 @@ $\text{\color{#ABCDC0}I'm not gud enough at comfortin ppl, but I will try my bes
 [HELLU CAPO!!](https://github.com/lovingl3tters) $\text{\color{#ABCDC0}<-- He's may not my friend but he cheers me up alot!! so I included him here.}$
  </details>
   
-<img width="260" height="260" alt="azuv4v" src="https://github.com/user-attachments/assets/49c23203-c81d-4c03-8661-085d3e80c812" />
+<img width="450" height="450" alt="giphy" src="https://github.com/user-attachments/assets/e2e2b4fb-fbba-46a0-a56c-379dc1d3c949" />
 
 $\text{\color{#F5F8D2}Animated by me! :3}$
 
