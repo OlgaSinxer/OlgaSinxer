@@ -20,7 +20,7 @@ Here are some ideas to get you started:
  
    ![Github Views](https://views.igorkowalczyk.dev/api/badge/OlgaSinxer?label=HELLOU+PPL!+>:DD&labelColor=F5F8D2&color=CBE0C8)
    
-[Ata](https://evilneedles.atabook.org)　[Straw](https://olgasinxer.straw.page)     [MainStraw](https://carrthecat.straw.page)
+[![badge](https://img.shields.io/badge/Ata-CBE0C8?style=flat-square)](https://evilneedles.atabook.org)　[![badge](https://img.shields.io/badge/Straw-CBE0C8?style=flat-square)](https://olgasinxer.straw.page)     [![badge](https://img.shields.io/badge/MainStraw-F5F8D2?style=flat-square)](https://carrthecat.straw.page)
 <img width="1280" height="503" alt="Untitled38_20260113183633" src="https://github.com/user-attachments/assets/2e972b08-85dd-4d82-a0f3-741e4146c1cb" />
 
  $\text{\color{#ABCDC0}GO READ MY MAIN STRAW PAGE TO KNOW ME BETTER!}$
@@ -112,7 +112,7 @@ $\text{\color{#5b9c87}I'm in a funny/crazy mood all the times so umm...hehe don'
 </details>
 
 
-***THIS IS US!! AWWW I LUV YU GUYS/P X3!!! WE HAVE BEEN SOOOOOO MUCH FUNN!!!***
+ $\text{\color{#ABCDC0}THIS IS US!! AWWW I LUV YU GUYS/P X3!!! WE HAVE BEEN SOOOOOO MUCH FUNN!!!}$
 <img width="567" height="325" alt="Screenshot 2026-09-09 184636" src="https://github.com/user-attachments/assets/7cc48340-138b-4a2e-913e-98c7d3ba0f10" />
 
 
