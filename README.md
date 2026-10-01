@@ -15,73 +15,68 @@ Here are some ideas to get you started:
 -->
 <div align="center">
  
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=40&height=80&pause=1000&color=ABCDC0&center=true&vCenter=true&width=900&lines=It's+look+like+a+movie+:P.;We+can+play+along+:D!.;And+It'll+be+okay+:3." />
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=40&height=80&pause=1000&color=987264&center=true&vCenter=true&width=900&lines=...Happiness+need+to+be+fought+for+!;So+don't+give+up+!" />
  </p>
  
-   ![Github Views](https://views.igorkowalczyk.dev/api/badge/OlgaSinxer?label=HELLOU+PPL!+>:DD&labelColor=F5F8D2&color=CBE0C8)
+   ![Github Views](https://views.igorkowalczyk.dev/api/badge/OlgaSinxer?label=HELLOU+PPL!+>:DD&labelColor=C9B4A9&color=8C6760)
    
-[![badge](https://img.shields.io/badge/Ata-CBE0C8?style=flat-square)](https://evilneedles.atabook.org)　[![badge](https://img.shields.io/badge/Straw-CBE0C8?style=flat-square)](https://olgasinxer.straw.page)     [![badge](https://img.shields.io/badge/MainStraw-F5F8D2?style=flat-square)](https://carrthecat.straw.page)
-<img width="1280" height="503" alt="Untitled38_20260113183633" src="https://github.com/user-attachments/assets/2e972b08-85dd-4d82-a0f3-741e4146c1cb" />
+[![badge](https://img.shields.io/badge/Ata-8C6760?style=flat-square)](https://evilneedles.atabook.org)　[![badge](https://img.shields.io/badge/Straw-8C6760?style=flat-square)](https://olgasinxer.straw.page)     [![badge](https://img.shields.io/badge/MainStraw-C9B4A9?style=flat-square)](https://carrthecat.straw.page)
+<img width="1280" height="720" alt="tumblr_c99c88130d0be744b1886eb5f4d78324_90911b10_2048" src="https://github.com/user-attachments/assets/2856f58d-674d-4282-bd0d-58c61842ebeb" />
 
- $\text{\color{#ABCDC0}GO READ MY MAIN STRAW PAGE TO KNOW ME BETTER!}$
+ $\text{\color{#845C56}GO READ MY MAIN STRAW PAGE TO KNOW ME BETTER!}$
  
- $\text{\color{#ABCDC0}Sign ata if yu want to bmf with me!.}$
+ $\text{\color{#B27F60}Sign ata if yu want to bmf with me!.}$
 
  <details>
-<summary> $\text{\color{#5b9c87} Pony Town info! :D}$ </summary><br>
+<summary> $\text{\color{#A77659} Pony Town info! :D}$ </summary><br>
   
- $\text{\color{#ABCDC0}Feel free to int with me..all yu wants!}$
+ $\text{\color{#B27F60}Feel free to int with me..all yu wants!}$
 
- $\text{\color{#ABCDC0}I will block yu if yu annoyin me like too much.}$
+ $\text{\color{#B27F60}I will block yu if yu annoyin me like too much.}$
   
- $\text{\color{#ABCDC0}When I'm in a bad mood, yu can still int but pls don't make me umcomfortable.}$
+ $\text{\color{#B27F60}When I'm in a bad mood, yu can still int but pls don't make me umcomfortable.}$
 
- $\text{\color{#ABCDC0}Might be late resp or none. If I leave suddenly, I probably js have smth to do or go take a nap/sleep.}$
+ $\text{\color{#B27F60}Might be late resp or none. If I leave suddenly, I probably js have smth to do or go take a nap/sleep.}$
 
- $\text{\color{#ABCDC0}Yu can come n cuddle me! bcuz I barely move to other spot..I usually at grass spot.}$
+ $\text{\color{#B27F60}Yu can come n cuddle me! bcuz I barely move to other spot..I usually at grass spot.}$
 
- $\text{\color{#ABCDC0}Do NOT friend me randomly unless give me permission or talkin with me.}$
+ $\text{\color{#B27F60}Do NOT friend me randomly unless give me permission or talkin with me.}$
 
- $\text{\color{#ABCDC0}Don't COPY my skins nor take inspo strictly (give me credits n permission so yer fine).}$
+ $\text{\color{#B27F60}Don't COPY my skins nor take inspo strictly (give me credits n permission so yer fine).}$
 
- $\text{\color{#ABCDC0}Under 13- and over 20+ pls dni or js iwec..(unless friend.)}$
+ $\text{\color{#B27F60}Under 13- and over 20+ pls dni or js iwec..(unless friend.)}$
 
- $\text{\color{#ABCDC0}I barely joke around so hehe yea don't mind me sitting in one place while yu walking n jumping in one place <:D}$
+ $\text{\color{#B27F60}I barely joke around so hehe yea don't mind me sitting in one place while yu walking n jumping in one place <:D}$
  </details>
 
  <details>
-<summary> $\text{\color{#5b9c87} Bonus! >:P}$ </summary><br>
+<summary> $\text{\color{#A77659} Bonus! >:P}$ </summary><br>
   
-$\text{\color{#ABCDC0}Request me to draw smth or yu can js ask me to draw yu! I luv drawing XD!}$
+$\text{\color{#B27F60}Request me to draw smth or yu can js ask me to draw yu! I luv drawing XD!}$
 
-$\text{\color{#ABCDC0}I luv it when yu int with me that long!}$
+$\text{\color{#B27F60}I luv it when yu int with me that long!}$
 
-$\text{\color{#ABCDC0}Yu can also ask me for gift skin, I could make yu one once yer my friend! :D}$
+$\text{\color{#B27F60}Yu can also ask me for gift skin, I could make yu one once yer my friend! :D}$
 
-$\text{\color{#ABCDC0}Don't worry much abt me whenever I'm in a bad mood alr? <:D}$
+$\text{\color{#B27F60}Don't worry much abt me whenever I'm in a bad mood alr? <:D}$
 
-$\text{\color{#ABCDC0}I'm not gud enough at comfortin ppl, but I will try my best to do it! >:3}$
+$\text{\color{#B27F60}I'm not gud enough at comfortin ppl, but I will try my best to do it! >:3}$
  </details>
  
 <details>
-<summary> $\text{\color{#5b9c87} Sum friends I sit and talk alot!}$ </summary><br>
+<summary> $\text{\color{#A77659} Sum friends I sit and talk alot!}$ </summary><br>
  
 [*Nyan*](https://github.com/c-utesy) / [*M40W*](https://github.com/VArtfultrust) / [*Abble*](https://github.com/Ilove-him) / [Khutas my stinkiest or dearest friend](https://github.com/flowerseasalt) / [Soren my first friend](https://github.com/BeachChick16) / [Kiraz my second friend](https://github.com/K1xraz)
 
 [Andre](https://github.com/andreslopper) / [Num1 yapper](https://github.com/NikaMokochi) / [Sugar the arg fellow!](https://github.com/2000SKUNK) / [Sixty the arg fellow!](https://github.com/Deivydoestutorialz33) / [Ayumii](https://github.com/Cuddling-Encouraged-heavily-Dnc) / [Yekita](https://github.com/ppawncakezz) / [Shellyz](https://github.com/ShellzyFossilzianz) / [Hi Dummy/Player!](https://github.com/kittydummy)
 
-[HELLU CAPO!!](https://github.com/lovingl3tters) $\text{\color{#ABCDC0}<-- He's may not my friend but he cheers me up alot!! so I included him here.}$
  </details>
   
-<img width="450" height="450" alt="giphy" src="https://github.com/user-attachments/assets/e2e2b4fb-fbba-46a0-a56c-379dc1d3c949" />
-
-$\text{\color{#F5F8D2}Animated by me! :3}$
-
-$\text{\color{#5b9c87}I'm in a funny/crazy mood all the times so umm...hehe don't mind me bcuz yea. Sweats O.O}$
+$\text{\color{#855C5A}I'm in a funny/crazy mood all the times so umm...hehe don't mind me bcuz yea. Sweats O.O}$
 
 
 <details>
-<summary> $\text{\color{#5b9c87} Tyy for nominations!}$ </summary><br>
+<summary> $\text{\color{#855C5A} Tyy for nominations! That Beatzzpurminotes one r nominated before SEILDIRECTORY cancelled.}$ </summary><br>
 <img width="421" height="39" alt="Screenshot 2026-08-25 093652" src="https://github.com/user-attachments/assets/a6713cbd-6bcc-4c5e-939b-444f7d2c80e2" />
 
 <img width="286" height="30" alt="Screenshot 2026-08-25 093743" src="https://github.com/user-attachments/assets/e474f1b4-1174-4e19-928b-0adcebbbbcd0" />
@@ -114,7 +109,7 @@ $\text{\color{#5b9c87}I'm in a funny/crazy mood all the times so umm...hehe don'
 </details>
 
 
- $\text{\color{#ABCDC0}THIS IS US!! AWWW I LUV YU GUYS/P X3!!! WE HAVE BEEN SOOOOOO MUCH FUNN!!!}$
+ $\text{\color{#B48C71}THIS IS US!! AWWW I LUV YU GUYS/P X3!!! WE HAVE BEEN SOOOOOO MUCH FUNN!!!}$
 <img width="567" height="325" alt="Screenshot 2026-09-09 184636" src="https://github.com/user-attachments/assets/7cc48340-138b-4a2e-913e-98c7d3ba0f10" />
 
 
