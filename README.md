@@ -110,6 +110,8 @@ $\text{\color{#855C5A}I'm in a funny/crazy mood all the times so umm...hehe don'
 <img width="618" height="78" alt="Screenshot 2026-09-30 140630" src="https://github.com/user-attachments/assets/83920db1-3403-42f1-b8ff-92810a193686" />
 
 <img width="706" height="112" alt="Screenshot 2026-10-01 135632" src="https://github.com/user-attachments/assets/714ffdb9-f66a-4754-aa18-2e3348a48098" />
+
+<img width="827" height="125" alt="Screenshot 2026-10-03 061742" src="https://github.com/user-attachments/assets/c0d2e532-0aeb-41d7-87d7-be1e45bdb08b" />
 </details>
 
 
