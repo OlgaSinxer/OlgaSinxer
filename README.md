@@ -1,3 +1,4 @@
+<img width="2048" height="335" alt="tumblr_f02c2373bbc6cf8375eb26a584974d8a_b5dc633a_2048" src="https://github.com/user-attachments/assets/08dc5cab-0ee3-4387-a6cb-e75a79e56fd8" />
 
 <!--
 **OlgaSinxer/OlgaSinxer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -15,10 +16,10 @@ Here are some ideas to get you started:
 -->
 <div align="center">
  
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=40&height=80&pause=1000&color=987264&center=true&vCenter=true&width=900&lines=...Happiness+need+to+be+fought+for+!;So+don't+give+up+!" />
- </p>
+<img width="2048" height="179" alt="tumblr_7945ec577518691aeecf4e9b94a5e886_222d6b01_2048" src="https://github.com/user-attachments/assets/e12ecb4c-4ff9-4d15-92c0-061ee04afc90" />
+
  
-   ![Github Views](https://views.igorkowalczyk.dev/api/badge/OlgaSinxer?label=HELLOU+PPL!+>:DD&labelColor=C9B4A9&color=8C6760)
+   ![Github Views](https://views.igorkowalczyk.dev/api/badge/OlgaSinxer?label=Apple+pie+!&labelColor=C9B4A9&color=8C6760)
    
 [![badge](https://img.shields.io/badge/Ata-8C6760?style=flat-square)](https://evilneedles.atabook.org)　[![badge](https://img.shields.io/badge/Straw-8C6760?style=flat-square)](https://olgasinxer.straw.page)     [![badge](https://img.shields.io/badge/MainStraw-C9B4A9?style=flat-square)](https://carrthecat.straw.page)
 <img width="1280" height="720" alt="tumblr_c99c88130d0be744b1886eb5f4d78324_90911b10_2048" src="https://github.com/user-attachments/assets/2856f58d-674d-4282-bd0d-58c61842ebeb" />
@@ -74,7 +75,7 @@ $\text{\color{#B27F60}I'm not gud enough at comfortin ppl, but I will try my bes
   
 $\text{\color{#C9B4A9}Low quality animation by me! XP}$
 
-$\text{\color{#855C5A}I'm in a funny/crazy mood all the times so umm...hehe don't mind me bcuz yea. Sweats O.O}$
+<img width="1920" height="315" alt="tumblr_5d6abf7ff7b1dfcff9a7a7df2b326cef_50c9118b_2048" src="https://github.com/user-attachments/assets/657993e1-70f3-4c9b-8524-ca744b85d157" />
 
 
 <details>
@@ -118,6 +119,7 @@ $\text{\color{#855C5A}I'm in a funny/crazy mood all the times so umm...hehe don'
  $\text{\color{#B48C71}THIS IS US!! AWWW I LUV YU GUYS/P X3!!! WE HAVE BEEN SOOOOOO MUCH FUNN!!!}$
 <img width="567" height="325" alt="Screenshot 2026-09-09 184636" src="https://github.com/user-attachments/assets/7cc48340-138b-4a2e-913e-98c7d3ba0f10" />
 
+<img width="1704" height="188" alt="tumblr_bdcf78c1ace43c6193b2ef85c3012019_d73fa90a_2048" src="https://github.com/user-attachments/assets/1cdd16ac-576b-46a6-816b-fbb1618abe1c" />
 
 
 
