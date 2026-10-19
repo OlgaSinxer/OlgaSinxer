@@ -117,7 +117,7 @@ $\text{\color{#C9B4A9}Low quality animation by me! XP}$
 
 
  $\text{\color{#B48C71}THIS IS US!! AWWW I LUV YU GUYS/P X3!!! WE HAVE BEEN SOOOOOO MUCH FUNN!!!}$
-<img width="567" height="325" alt="Screenshot 2026-09-09 184636" src="https://github.com/user-attachments/assets/7cc48340-138b-4a2e-913e-98c7d3ba0f10" />
+<img width="532" height="332" alt="Screenshot 2026-10-12 200130" src="https://github.com/user-attachments/assets/e48f329a-671e-430a-9983-b1fa83c60b77" />
 
 <img width="1704" height="188" alt="tumblr_bdcf78c1ace43c6193b2ef85c3012019_d73fa90a_2048" src="https://github.com/user-attachments/assets/1cdd16ac-576b-46a6-816b-fbb1618abe1c" />
 
