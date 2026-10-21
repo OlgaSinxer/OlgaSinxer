@@ -65,7 +65,7 @@ $\text{\color{#B27F60}I'm not gud enough at comfortin ppl, but I will try my bes
  </details>
  
 <details>
-<summary> $\text{\color{#A77659} Sum friends I sit and talk alot!}$ </summary><br>
+<summary> $\text{\color{#A77659} All of my potential friends !}$ </summary><br>
  
 [*Nyan*](https://github.com/c-utesy) / [*M40W*](https://github.com/VArtfultrust) / [*Abble*](https://github.com/midnightstati) / [Khutas my stinkiest or dearest friend](https://github.com/flowerseasalt) / [Soren my first friend](https://github.com/BeachChick16) / [Kiraz my second friend](https://github.com/K1xraz)
 
