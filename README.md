@@ -21,7 +21,7 @@ Here are some ideas to get you started:
  
    ![Github Views](https://views.igorkowalczyk.dev/api/badge/OlgaSinxer?label=Apple+pie+!&labelColor=C9B4A9&color=8C6760)
    
-[![badge](https://img.shields.io/badge/Ata-8C6760?style=flat-square)](https://evilneedles.atabook.org)　[![badge](https://img.shields.io/badge/Straw-8C6760?style=flat-square)](https://olgasinxer.straw.page)     [![badge](https://img.shields.io/badge/MainStraw-C9B4A9?style=flat-square)](https://carrthecat.straw.page)
+[![badge](https://img.shields.io/badge/Ata-8C6760?style=flat-square)](https://evilneedles.atabook.org)　[![badge](https://img.shields.io/badge/Straw-8C6760?style=flat-square)](https://sinxthesilly.straw.page)     [![badge](https://img.shields.io/badge/MainStraw-C9B4A9?style=flat-square)](https://carrthecat.straw.page)
 <img width="1280" height="720" alt="tumblr_c99c88130d0be744b1886eb5f4d78324_90911b10_2048" src="https://github.com/user-attachments/assets/2856f58d-674d-4282-bd0d-58c61842ebeb" />
 
  $\text{\color{#845C56}GO READ MY MAIN STRAW PAGE TO KNOW ME BETTER!}$
