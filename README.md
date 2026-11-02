@@ -113,6 +113,10 @@ $\text{\color{#C9B4A9}Low quality animation by me! XP}$
 <img width="706" height="112" alt="Screenshot 2026-10-01 135632" src="https://github.com/user-attachments/assets/714ffdb9-f66a-4754-aa18-2e3348a48098" />
 
 <img width="827" height="125" alt="Screenshot 2026-10-03 061742" src="https://github.com/user-attachments/assets/c0d2e532-0aeb-41d7-87d7-be1e45bdb08b" />
+
+<img width="375" height="75" alt="Screenshot 2026-11-02 193015" src="https://github.com/user-attachments/assets/ac352eb7-725c-48a7-a984-518b1b585bec" />
+
+<img width="614" height="66" alt="Screenshot 2026-11-02 193022" src="https://github.com/user-attachments/assets/9b3d76dd-6189-4ee7-bff5-35954ad4e8d6" />
 </details>
 
 
