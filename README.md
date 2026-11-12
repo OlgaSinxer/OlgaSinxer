@@ -39,7 +39,7 @@ Here are some ideas to get you started:
 
  $\text{\color{#B27F60}Might be late resp or none. If I leave suddenly, I probably js have smth to do or go take a nap/sleep.}$
 
- $\text{\color{#B27F60}Yu can come n cuddle me! bcuz I barely move to other spot..I usually at grass spot.}$
+ $\text{\color{#B27F60}Yu can come n cuddle me, no need to ask! bcuz I barely move to other spot..I usually at grass spot.}$
 
  $\text{\color{#B27F60}Do NOT friend me randomly unless give me permission or talkin with me.}$
 
